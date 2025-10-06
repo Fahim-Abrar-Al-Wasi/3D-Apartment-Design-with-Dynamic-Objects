@@ -1,1 +1,1 @@
-[![Graphics Project Video](https://img.youtube.com/vi/sjjpkyn4Pek/maxresdefault.jpg)](https://youtu.be/sjjpkyn4Pek)
+[![Watch Video](https://img.youtube.com/vi/sjjpkyn4Pek/0.jpg)](https://youtu.be/sjjpkyn4Pek)
